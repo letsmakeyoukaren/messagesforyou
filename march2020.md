@@ -8,3 +8,6 @@ Karen, there are so many different ways to learn something nowadays that it's di
 
 **Written on Sunday, March 30, 2020, at 04:44**  
 Hi Karen, I still haven't begun working on assignments due this week yet. I'm spending more time on the problems in this Combinatorics textbook than I would like. I forgot about my meeting with Maimi this morning, I will try to finish all my homework tomorrow so I can meet her on Wednesday. Let's start on actual work.
+
+**Written on Sunday, March 31, 2020, at 01:35**  
+Why did I not finish my assignments before messing around with Git and trying to speedrun unassigned Combinatorics problems?!?! I swear that I will finish all homework assignments due within the next 7 days before spending my time on anything that has no effect on my GPA. I swear. Really! Please watch over me Karen, I tend to get lost when I'm let loose alone.
