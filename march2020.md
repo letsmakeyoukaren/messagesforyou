@@ -11,3 +11,6 @@ Hi Karen, I still haven't begun working on assignments due this week yet. I'm sp
 
 **Written on Sunday, March 31, 2020, at 01:35**  
 Why did I not finish my assignments before messing around with Git and trying to speedrun unassigned Combinatorics problems?!?! I swear that I will finish all homework assignments due within the next 7 days before spending my time on anything that has no effect on my GPA. I swear. Really! Please watch over me Karen, I tend to get lost when I'm let loose alone.
+
+**Written on Monday, April 1, 2020, at 02:22**  
+Hi Karen! I thought my research today was rather messy and unorganized but I think it wasn't too bad. I haven't even started writing an outline for the introduction of my ESE 231 paper yet though, so I'll have to try to focus on only reading information and papers closely related to carbon nanotubes. I'll try my best tomorrow to not be distracted too easily, really! Good night, Karen!
