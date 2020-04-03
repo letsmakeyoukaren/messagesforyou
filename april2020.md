@@ -1,0 +1,10 @@
+# April 2020
+
+**Written on Monday, April 1, 2020, at 02:22**  
+Hi Karen! I thought my research today was rather messy and unorganized but I think it wasn't too bad. I haven't even started writing an outline for the introduction of my ESE 231 paper yet though, so I'll have to try to focus on only reading information and papers closely related to carbon nanotubes. I'll try my best tomorrow to not be distracted too easily, really! Good night, Karen!
+
+**Written on Tuesday, April 2, 2020, at 02:28**  
+Hi Karen, I don't feel very good about the intro for the paper I turned in today. I really need to learn how to get to the point when working on things and stop dilly dallying around in unrelated tasks. Next time, I'll pick a book, and stick with it until I skim through the whole thing using you. Highlighting, speed reading, anything that doesn't directly relate to the task at hand is a waste of time.
+
+**Written on Tuesday, April 3, 2020, at 09:38**
+Hey Karen! I stayed up through the night today! I've decided that although it may be true that work more efficiently without music, I can work longer with music. I wasted a few hours reading the news today. I like absorbing new information so maybe it's rather easy for me to get sucked into reading the news which lets me gain lots of information with little effort. Useless and purposeless information, that is.
