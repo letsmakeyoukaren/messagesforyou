@@ -8,3 +8,6 @@ Hi Karen, I don't feel very good about the intro for the paper I turned in today
 
 **Written on Tuesday, April 3, 2020, at 09:38**
 Hey Karen! I stayed up through the night today! I've decided that although it may be true that work more efficiently without music, I can work longer with music. I wasted a few hours reading the news today. I like absorbing new information so maybe it's rather easy for me to get sucked into reading the news which lets me gain lots of information with little effort. Useless and purposeless information, that is.
+
+**Written on Wednesday, April 3, 2020, at 11:50**
+Hi Karen, going to sleep now. Tried to get work done today but woke up too late and slept too little. Trying to get back into a normal sleep schedule. Will to wrap up AMS 301 studies and move onto ESE 231 HW, AMS 310 HW, and studying for the ESE 224 midterm.
