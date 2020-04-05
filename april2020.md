@@ -11,3 +11,6 @@ Hey Karen! I stayed up through the night today! I've decided that although it ma
 
 **Written on Wednesday, April 3, 2020, at 11:50**
 Hi Karen, going to sleep now. Tried to get work done today but woke up too late and slept too little. Trying to get back into a normal sleep schedule. Will to wrap up AMS 301 studies and move onto ESE 231 HW, AMS 310 HW, and studying for the ESE 224 midterm.
+
+**Written on Wednesday, April 5, 2020, at 3:33 AM**
+Hi Karen, just finished meeting with Simon. Today would've been a good day if not for me spending a few hours reading the news again. It all started from a YouTube video. New rule: don't click or think of anything news related; whether that's a YouTube video or an article.
